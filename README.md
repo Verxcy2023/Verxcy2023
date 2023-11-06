@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Verxcy2023
+- 👀 I’m a minecraft bot dev
